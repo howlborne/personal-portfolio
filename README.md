@@ -1,1 +1,1 @@
-# muhammadawaisjaved-portfolio
+# personal-portfolio
